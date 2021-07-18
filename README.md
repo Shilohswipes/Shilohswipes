@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Shilohswipes
-- 👀 I’m interested in Penis 
-- 🌱 I’m currently learning Cum
-- 💞️ I’m looking to collaborate on Big Booty Bitches
+🌱 I’m currently learning JavaScript & ASM
+🔭 I’m currently working on Lumina
+📫 Reach me in discord Zanelul#7511
+😄 Pronouns: He/Him
 - 📫 How to reach me https://www.pornhub.com/users/shilohswipesoff
